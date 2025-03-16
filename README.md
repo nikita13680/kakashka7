@@ -1,3 +1,3 @@
-# kakashka7
+# sosiska7
 сам не знаю что это ,но это годно ,
 нужен vscode , PQ5
